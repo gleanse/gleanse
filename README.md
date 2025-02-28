@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Auldey Glen
+Hi, I’m Auldey Glen
